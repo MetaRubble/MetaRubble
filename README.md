@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MetaRubble
+- 👋 Hi, I’m Rick @MetaRubble
 - 👀 I’m interested in netwroking and being apart of new and exciting opportunities.
 - 🌱 I’m currently learning adn absorbing everything like a sponge ;)
 - 💞️ I’m looking to collaborate on expand my knowledge.
