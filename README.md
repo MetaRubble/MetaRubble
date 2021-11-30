@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Rick @MetaRubble
 - 👀 I’m interested in netwroking and being apart of new and exciting opportunities.
-- 🌱 I’m currently learning adn absorbing everything like a sponge ;)
+- 🌱 I’m currently learning and absorbing everything like a sponge ;)
 - 💞️ I’m looking to collaborate on expand my knowledge.
 - 📫 How to reach me Metarubble@gmail.com
 
